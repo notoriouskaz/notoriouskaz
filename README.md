@@ -1,2 +1,3 @@
-Haii here are all my links ^^
-https://aboutkaz3.straw.page
+Haii here are all my links 
+bonesandbugs.straw.page
+discord - notoriousk.a.z.
